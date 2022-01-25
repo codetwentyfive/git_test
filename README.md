@@ -1,3 +1,3 @@
 # git_test
-First Time for everything
-Hello Odin!
+Phoenix loves guys with eyeliner 
+He thinks they are yery kawaii desuu neee 
